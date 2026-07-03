@@ -14,7 +14,7 @@
 <p align="center">
 
  
-<img src="https://s1.ezgif.com/tmp/ezgif-1f074253ae20df69.gif" width="300">
+<img src="https://puppymiu.carrd.co/assets/images/image01.gif?v=cb329627" width="750">
 
 
 <p align="center"
