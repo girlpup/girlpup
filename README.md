@@ -14,7 +14,7 @@
 <p align="center">
 
  
-<img src="https://catitosumi.carrd.co/assets/images/image02.png?v=400c7b24" width="300">
+<img src="https://s1.ezgif.com/tmp/ezgif-1f074253ae20df69.gif" width="300">
 
 
 <p align="center"
