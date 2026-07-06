@@ -20,9 +20,11 @@
 <p align="center"
 
  Ꮚᵕ̣̣̣̣̣ ہ ᵕ̣̣̣̣̣̣ Ꮚ    ◌  ⠀𓈒  ☆⠀ ˚  
+
+<p align="center"
  
-
-
+ i'm *not* down to roleplay ! sorry ! (；′⌒`)
+ 
 <p align="center"
  
  ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=fcedfc)
