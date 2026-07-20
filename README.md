@@ -13,16 +13,11 @@
  
 <p align="center">
  
-<img src="https://puppymiu.carrd.co/assets/images/image01.gif?v=cb329627" width="500">
+<img src="https://64.media.tumblr.com/90f346e09633928d1a9b7966e381e68a/ea999ce26a695510-88/s640x960/e04bc75451dd6301e48b800a1aa365a3780c79ee.gifv" width="500">
 
 <p align="center"
 
  i'm *not* down to roleplay ! sorry ! (；′⌒`)
-
-<p align="center"
-
-![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://64.media.tumblr.com/fd0fe8f8067e70447e33cbb3b3663355/7c51ad3f7147e77a-ec/s100x200/8f5954d889069e4f5d77b927e11d360d8e00c5f4.gifv)
- 
 <p align="center"
  
  ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=fcedfc)
