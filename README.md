@@ -20,6 +20,6 @@
  i'm *not* down to roleplay ! sorry ! (；′⌒`)
 <p align="center"
  
- ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=fcedfc)
+ ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=bafffc&label=bunnies)
 
 
