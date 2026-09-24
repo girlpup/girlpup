@@ -13,11 +13,11 @@
  
 <p align="center">
  
-<img src="https://i.imgur.com/2RZ1pjV.png" width="750">
+<img src="https://catitosumi.carrd.co/assets/images/image03.png?v=62be43b2" width="750">
 
 <p align="center"
 
- i'm *not* down to roleplay ! sorry ! (；′⌒`)
+ art by my [wife](https://github.com/fuburyo) 
 <p align="center"
  
  ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=bafffc&label=bunnies)
